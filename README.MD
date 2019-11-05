@@ -68,15 +68,12 @@ To be published.
 
 ---------------------------------------------------------------------
 
->	**Fu-Hao Lu**
+>	**Hong-Ying Gao**
 
->	Post-Doctoral Scientist in Micheal Bevan laboratory
+>	Made in China
+        Master of biology ,School of Basic Medicine,Henan university.
 
->	Cell and Developmental Department, John Innes Centre
-
->	Norwich NR4 7UH, United Kingdom
-
->	E-mail: <Fu-Hao.Lu@jic.ac.uk>
+>	E-mail: <1874189577@qq.com>
 
 ---------------------------------------------------------------------
 
